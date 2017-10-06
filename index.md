@@ -4,3 +4,32 @@ I am a PhD student at the [Department of Mathematics](http://matematicas.unex.es
 I am a member of the research group [Branching Processes and Their Applications](http://branching.unex.es/). Currently, I am in the final year of my PhD studies, for which I was awarded a University Professor Training grant (Predoctoral FPU), given by the Spanish Ministry of Education, Culture and Science. I also completed a BSc in Mathematics (2012), a BSc in Statistics (2012), a MSc in Science Research (2013) and a MSc in Formation of Teachers of Secondary Education (2014), in both of which my specialisation was Mathematics.
 
 You can find my CV [here](http://matematicas.unex.es/~cminuesaa/Curriculum_vitae/). 
+
+# Research activities
+Last update: 6th October, 2017
+
+# Publications
+Last update: 6th October, 2017
+
+# Teaching
+Last update: 6th October, 2017
+
+# Contact
+
+Office B33 at the Department of Mathematics (Badajoz, Carlos Benítez building).
+
+## Contact details
+tel.: +34 924289300 86108 
+
+e-mail: cminuesaa@unex.es, carmenminuesaabril@gmail.com
+
+## Address
+Department of Mathematics,
+
+Faculty of Sciences,
+
+University of Extremadura.
+
+Avenida de Elvas s/n
+
+06006 Badajoz (SPAIN)
