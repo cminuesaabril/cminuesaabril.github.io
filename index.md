@@ -1,4 +1,3 @@
-## Carmen Minuesa Abril
 
 I am a PhD student at the [Department of Mathematics](http://matematicas.unex.es/) of the [University of Extremadura](https://www.unex.es/?set_language=en&cl=en), in Badajoz (Spain). My research is focused on branching processes, especially in controlled branching processes.
 
